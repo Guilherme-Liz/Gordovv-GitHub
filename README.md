@@ -1,2 +1,2 @@
 # Gordovv-GitHub
-Welcome to Gordovv's plave
+Welcome to Gordovv's place
